@@ -1,6 +1,0 @@
-asdf
-
-hello Nigeria
-
-MTN
-
